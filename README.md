@@ -1,4 +1,4 @@
-# Graphic-design-practice
+# Graphic-design
 A collection of my graphic design practice works — posters, banners, and logos — created while learning and improving my design skills
 🎨 Graphic Design Practice
 📌 About
